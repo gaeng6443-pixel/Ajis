@@ -1,0 +1,2 @@
+# Ajis
+Bug wa
